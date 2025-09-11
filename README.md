@@ -1,6 +1,6 @@
 ## Olá sou o Dmessias2311👋
 - 💬 Estou estudando com Desenvolvimento de Sistema
-- 😄 Faço o curno no SENAI de boituva 
+- 😄 Faço o curno no SENAI de Boituva 
   
 
 <div
